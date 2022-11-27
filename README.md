@@ -14,3 +14,5 @@ Go to Console and paste the contents of freenitro.js
 Click enter
 
 And there you go! You got FREE nitro! (This is REAL and 100% Working!)
+
+**NOT A TOKEN GRAVBBER!!!!!!!!**
